@@ -1,2 +1,1 @@
-# laksha-srinivas
-Sreelaksha Srinivas | Portfolio
+Sreelaksha Srinivas Portfolio
